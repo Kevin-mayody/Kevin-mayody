@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Kevin-mayody
-- 👀 I’m interested in animation designs..
-- 🌱 I’m currently learning creative facebook community ads sponsership
+- 👀 I’m an animation designs creator..
+- 🌱 currently learning creative facebook community ads sponsorship
+- 💀 Learning vps ssh server creation
 - 💞️ I’m looking to collaborate on coding..
 - 📫 How to reach me community ads sponsored and thanks for the WhatsApp hacking tips. 
 
