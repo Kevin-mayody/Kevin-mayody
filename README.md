@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on networking projects...
 - 📫 Reach me through community ads sponsored and thanks for your support.
 - Reach me for mpesa api integration
-- Toll: +254769809492
+- Contact: +254769809492
 
 <!---
 Kevin-mayody/Kevin-mayody is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
